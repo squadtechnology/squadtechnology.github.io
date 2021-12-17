@@ -1,1 +1,0 @@
-# squadtechnology.github.io
